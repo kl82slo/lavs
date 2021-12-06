@@ -1,2 +1,0 @@
-# lavs
-Svečarstvo lavš
